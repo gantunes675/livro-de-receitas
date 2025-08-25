@@ -1,9 +1,13 @@
 # Ingredientes (10 porções)
 
 - 5 colheres de manteiga
+
 - 3 ovos
+
 - 3 xicara de achocolatado
+
 - 6 colheres de açúcar
+
 - 12 colheres de farinha de trigo
 
 # Modo de preparo :
